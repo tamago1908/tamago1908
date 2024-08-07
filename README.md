@@ -12,7 +12,9 @@
 - 💬 Ask me about: Anything
 - 📫 How to reach me: Discord, Reddit, Twitter (X), Misskey.io, Github.
 - 😄 Pronouns: **EGG**
-- ⚡ Fun fact: I'm Japanese! 
+- ⚡ Fun fact: I'm Japanese!
+
+> This profile may not be displayed correctly on mobile Github app or devices with low resolution.
 
 Thank you for reading my profile! TO RECEIVE YOUR REWORD, CLICK BLOW...  
 [CLICK HERE](https://www.youtube.com/watch?v=dQw4w9WgXcQ)  
